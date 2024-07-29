@@ -1,2 +1,2 @@
-# Jashan-cse.github.io
-This is my first GitHub website
+# Jashan-cse.git
+HI MY NAME IS JASHANJOT SINGH 
