@@ -309,5 +309,7 @@ Fostering professional behavior, strong ethical values, innovative research skil
 The professors also provided details about the campus placement and training cells, highlighting that the highest package can reach up to 51 lakhs. We also learned about the examination system in the Computer Science Department. After this informative session, we had the chance to visit the computer lab.
 
 CONTACT:-
+
 EMAIL ID - jashanjotmastana@gmail.com 
+
 INSTA ID - jashanjot7167
